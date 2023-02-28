@@ -72,6 +72,8 @@ See [Fairyland Loop Trail](https://www.nps.gov/brca/planyourvisit/fairylandloop.
 
 The shuttles will be running starting March 10th. Plan to get to the park early so that you can get parking. I think we arrived just after 8am and got one of the last parking spots. First shuttle leaves 7am. See [Zion Canyon Shuttle System](https://www.nps.gov/zion/planyourvisit/zion-canyon-shuttle-system.htm).
 
+We stealth camped in a park in Kanab, UT and we stayed on BLM land on the south west side of the park (was a little sketchy out there), probably wouldn't do it in a tent.
+
 ### 5.1 West Rim Trail to Scout Lookout (optional Angel's Landing w/ Permit)
 
 Permits are now required from Scout's Lookout to Angel's Landing. However, even the hike up to Scout's Lookout is worth it.
