@@ -4,6 +4,8 @@ In general, seeing the parks at sunrise or at night when the stars are out is sp
 
 Apps like iOverlander and FreeRoam can help find free BLM campgrounds, free dispersed camping or low fee National Forest camping.
 
+Carry [The Ten Essentials](https://www.nps.gov/care/planyourvisit/upload/Fruita-Area-Map-and-Guide-2021.pdf) and check the weather. Flash flooding is always a concern in Utah.
+
 ## 1. Arches National Park
 
 Camping in Arches is limited, so you can camp for free on BLM land north of Arches off Hwy 191. Or at the end of the day in Arches you could drive towards Canyonlands off Hwy 313 at Horsetheif Campground.
@@ -42,15 +44,42 @@ A really strange geological feature worth checking out. See [Upheaval Dome](http
 
 The Fruita campground on recreaion.gov already looks reserved. We stayed on some dispersed camping land that is west of the park down Utah State Route 24 near Cook's Mesa Trailhead about 6.4 miles from the park entrance. You should see others camped there from Utah State Route 24.
 
-### Drive (or Bicycle) the Park Road
+### 3.1 Drive (or Bicycle) the Park Road
 
 The out and back park road is a great drive with lots of stops and trails along the way. Be sure to drive down Grand Wash and Capitol Gorge spur road. See [Guide to the Scenic Drive](https://www.nps.gov/care/planyourvisit/scenicdrive.htm). Once the road ends, hike Grand Wash or the Capitol Groge trails. Be aware of flash floods, making sure weather is not threatening before hiking.
 
-### Hickman Natural Bridge Trail
+### 3.2 Hickman Natural Bridge Trail
 
 This trail wasn't too long, but still has elevation gain to it and a cool arch at the end. See the [Fruita Area Map and Guide](https://www.nps.gov/care/planyourvisit/upload/Fruita-Area-Map-and-Guide-2021.pdf). If you'd like a more strenous hike the Chminey Rock Trail and the Navajo Knobs trails I think would have great views although I haven't had a chance to do them yet.
 
 ## 4. Bryce National Park
 
+The drive from Capitol Reef to Bryce along Hwy 12 has epic views. Drive towards Torrey, UT from Capitol Reef NP and head south on Hwy 12. Try to drive it during the day to see all the views.
+
+We camped on Dixie National Forest Dispersed Camping off of Toms Best Spring Road. It's maybe a 10-15 minutes drive from Bryce NP entrance.
+
+### 4.1 Sunrise!
+
+Wake up early and find a spot to watch the sunrise along the rim of Bryce. Highly recommended.
+
+### 4.2 Fairyland Loop
+
+After sunrise head out on the Fairyland Loop Trail. 8 miles, about 4-5 hours, bring lots of water! It's the best trail to get up close with the Hoodoos without simultaneously being asked to move over because you're in someone's picture. Lots of tourist buses go to Bryce.
+
+See [Fairyland Loop Trail](https://www.nps.gov/brca/planyourvisit/fairylandloop.htm)
+
 ## 5. Zion National Park
 
+The shuttles will be running starting March 10th. Plan to get to the park early so that you can get parking. I think we arrived just after 8am and got one of the last parking spots. First shuttle leaves 7am. See [Zion Canyon Shuttle System](https://www.nps.gov/zion/planyourvisit/zion-canyon-shuttle-system.htm).
+
+### 5.1 West Rim Trail to Scout Lookout (optional Angel's Landing w/ Permit)
+
+Permits are now required from Scout's Lookout to Angel's Landing. However, even the hike up to Scout's Lookout is worth it.
+
+See [West Rim to Scout Lookout](https://www.nps.gov/thingstodo/hike-to-scout-lookout.htm)
+
+### 5.2 The Narrows
+
+This is a fun and wet adventure. You can rent water shoes at a few vendors or go barefoot like we did (not recommended). Pay special attention to the area weather. The Narrows has flash flooding frequently.
+
+See [The Narrows](https://www.nps.gov/zion/planyourvisit/thenarrows.htm)
