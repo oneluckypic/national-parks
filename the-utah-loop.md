@@ -30,7 +30,7 @@ We did not get to explore this area, but it's next on my list. You can either go
 
 ## 2. Canyonlands National Park (Island in the Sky)
 
-There are a few areas of Canyonlands, but the one closest to Arches is called Island in the Sky. The Needles is another area you may be interested to look into because there are several 4x4 roads to explore, however it may be too time consuming to get to the Needles area. We've only been to Island in the Sky which has several good lookouts and short trails to do off the main park road. Grand View Point is worth the drive.
+There are a few areas of Canyonlands, but the one closest to Arches is called Island in the Sky. The Needles is another area you may be interested to look into because there are several 4x4 roads to explore, however it may be too time consuming to get to the Needles area. We've only been to Island in the Sky which has several good lookouts and short trails to do off the main park road. [Grand View Point](https://www.nps.gov/zion/planyourvisit/thenarrows.htm) is worth the drive.
 
 ### 2.1 Shafer Trail Road
 
@@ -38,7 +38,7 @@ We haven't got a chance to do this road, but it's next on the list. See [Experie
 
 ### 2.2 Upheaval Dome
 
-A really strange geological feature worth checking out. See [Upheaval Dome](https://www.nps.gov/articles/cany-upheaval-dome.htm)
+A really strange geological feature worth checking out. Short hike to the viewpoints. See [Upheaval Dome](https://www.nps.gov/articles/cany-upheaval-dome.htm)
 
 ## 3. Capitol Reef National Park
 
